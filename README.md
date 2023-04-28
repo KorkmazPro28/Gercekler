@@ -1,0 +1,2 @@
+# Gercekler
+Yok
